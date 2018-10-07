@@ -5,3 +5,7 @@
 >Rozwiniecie
 
 >Zakonczenie
+
+Zmiany
+Liscie
+Kwiaty
