@@ -1,3 +1,4 @@
 ## Nauka Gita
-- to jest
-- lista
+Poczatki
+:smile:
+Rozwiniecie
