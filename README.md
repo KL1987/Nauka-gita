@@ -1,5 +1,7 @@
 ## Nauka Gita
-Poczatki
+
+>Poczatki
 :smile:
-Rozwiniecie
-Zakonczenie
+>Rozwiniecie
+
+>Zakonczenie
