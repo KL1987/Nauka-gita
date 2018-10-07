@@ -2,3 +2,4 @@
 Poczatki
 :smile:
 Rozwiniecie
+Zakonczenie
